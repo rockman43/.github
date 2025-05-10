@@ -1,4 +1,5 @@
 # Minecraft 1.21.80 APK (MediaFire 2025) Descargar la Última Versión 2025 para Android 👋
+# [Descargar Minecvraft 1.21.80](https://apklulu.com/minecraft-1-21-80/)
 
 ## 🧱 Minecraft 1.21.80 APK – ¡Explora, construye y sobrevive!
 Descargar Minecraft 1.21.80 APK
